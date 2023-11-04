@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Rita Onwudiwe
-- 👀 A frontend dev
+- 👀 A Technical Product Manager 
 - 💞️ I’m looking to collaborate on more projects to become proficient in this field 
 - 📫 How to reach @onwudiwechinwendu16@gmail.com
